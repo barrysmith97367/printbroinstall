@@ -1,6 +1,8 @@
 How to Install My Brother Printer to My Computer!
 ===================================
-Installing your Brother printer to your computer is the first step toward hassle-free printing, scanning, and copying. Whether you're connecting via USB or WiFi, this guide will show you exactly how to set it up and get your printer working on both Windows and Mac devices.
+Dial 1-888-966-6097 Installing your Brother printer to your computer is the first step toward hassle-free printing, scanning, and copying. Whether you're connecting via USB or WiFi, this guide will show you exactly how to set it up and get your printer working on both Windows and Mac devices.
+
+
  Why Proper Installation Matters
 ===================================
 Correct installation ensures:
